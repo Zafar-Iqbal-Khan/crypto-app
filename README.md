@@ -10,7 +10,7 @@
 
 
   ![image](https://user-images.githubusercontent.com/68896404/194213663-26aa94a2-e106-4179-ac9a-cda29cc76c6f.png)
-## [Instagram](https://instagram.com/niima.dev)
+## [Instagram](https://instagram.com/khan.devv)
 
 ## Getting Started
 
