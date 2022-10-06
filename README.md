@@ -9,7 +9,12 @@
   </p>
 
 
-  ![image](https://user-images.githubusercontent.com/68896404/194213663-26aa94a2-e106-4179-ac9a-cda29cc76c6f.png)
+
+https://user-images.githubusercontent.com/68896404/194217424-b689a0e6-3288-4d23-a910-19694d7f28fe.mp4
+
+
+  
+  
 ## [Instagram](https://instagram.com/khan.devv)
 
 ## Getting Started
